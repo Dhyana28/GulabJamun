@@ -1,14 +1,3 @@
--------------------------------------------------------------------------------
-Ingredients:
-Items needed:
-->Gulab Jamun mix
-->Water
-->Saffron
-->Ghee
-->Sugar
-->Almonds
--------------------------------------------------------------------------------
-
 Procedure:
 1.Firstly, in a large pan take 1½ cup sugar and 1½ cup water.
 
